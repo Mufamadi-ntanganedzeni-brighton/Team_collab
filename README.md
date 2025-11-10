@@ -30,3 +30,6 @@ How It Makes Money
 - Per-use Fees- Small payments for specific services like a legal call or ambulance
 - Partnerships -Work with insurance, medical, or security companies
 - Community Sponsorships- NGOs or local businesses can fund free access for some groups
+
+- 
+https://trello.com/invite/b/6901bd01cd60e768dd250448/ATTId0a482986f073baa3be215c4f3af3b8595B01149/isazi-cohort-2-team-3 
